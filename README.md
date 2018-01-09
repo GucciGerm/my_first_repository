@@ -1,1 +1,1 @@
-Giggle Gangle hOLBI E
+Holberton is cool
